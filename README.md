@@ -1,1 +1,15 @@
-S'Life (Students Life) is a platform dedicated to supporting students who face financial challenges by connecting them with donors, well-wishers, and the community. It aims to provide financial assistance, educational resources, and a sense of belonging to those in need, helping them succeed academically and personally. Through donations, partnerships, and collaborations, S'Life strives to make education accessible and empower students to reach their full potential.
+
+**Visionary | Bitcoin Advocate | Student Leader | Tech & Mental Health Enthusiast**
+
+I'm passionate about empowering students through digital innovation, economic freedom, and holistic development.
+
+### What I'm Working On:
+- **S'LIFE, SEF & SSN** – Platforms to support students emotionally, financially, and purposefully.
+- **Bitcoin Kaka & B-Free** – Championing Bitcoin education and financial freedom.
+- **DTE Platform** – AI-powered student monetization ecosystem.
+- Organizing tech and mental health events @JKUAT.
+
+### Let's Connect:
+[Twitter](https://twitter.com/samblaziar) | [LinkedIn](https://linkedin.com/in/samblaziar) | [Email](mailto:samblaziar91@gmail.com)
+
+_"Empowering the youth, unlocking digital freedom."_
